@@ -1,2 +1,2 @@
 # Fucker
-discord raid , nuke 
+
